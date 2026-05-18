@@ -1,4 +1,4 @@
-#  
+#  Top brainrot evolution scripts is the best brainrot evolution scripts with infinite resources and god mode. Safe, reliable, and optimized for maximum performance.
 
 
 
